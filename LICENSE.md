@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS panel with automatic Adobe Photoshop for macOS Panel | color correction + grid systems. Featuring color correction and grid systems,
 
 
 
